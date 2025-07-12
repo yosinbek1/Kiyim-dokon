@@ -1,0 +1,2 @@
+# Kiyim-dokon
+Yosinbek
